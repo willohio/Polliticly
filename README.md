@@ -1,2 +1,0 @@
-# Polliticly
- Vote in NewYork
